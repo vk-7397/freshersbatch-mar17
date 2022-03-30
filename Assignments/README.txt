@@ -1,0 +1,1 @@
+Lines about the content of assignments about the file
